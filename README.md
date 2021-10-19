@@ -26,7 +26,7 @@ Even though this poem isn’t long I do believe that it is good and when I write
 
 ## How to use it
 
-All you have to do is write down your own poems and what you think about poetry whether you like it or hate it.
+All you have to do is write down your own poems and give me your opinions on my poems whether you like it or hate it.
 
 ## License
 
